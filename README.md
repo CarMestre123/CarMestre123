@@ -5,5 +5,4 @@
 - Utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos
 - Amo jogos de navegador (jogos flash) e Bob Esponja
 
-![](https://media.tenor.com/sopTGZdbYrMAAAAj/gaming-mickey-mouse.gif)
-![](https://media.tenor.com/FpKvco7tULAAAAAM/spongebobsquarepants-dance.gif)
+![](https://media.tenor.com/rRt4fvujKXgAAAAM/nintendo-super-mario.gif)
